@@ -1,4 +1,4 @@
-
+premium Script for oil empire offers the most advanced oil empire Script, with auto-upgrade and fly. Perfect for dominating any match.
 
 
 
